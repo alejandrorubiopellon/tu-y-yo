@@ -5428,3 +5428,5 @@ Y esa revolución no consiste en reemplazar al ser humano,
 sino en devolverle la responsabilidad de decidir
 qué hacer con las inteligencias que es capaz de crear
 antes de comprenderlas del todo.
+
+https://alejandrorubiopellon.wordpress.com/wp-admin/post.php?post=22&action=edit
